@@ -1,2 +1,2 @@
-# Peson_wakatobi
+# Pesona_wakatobi
 wisata
